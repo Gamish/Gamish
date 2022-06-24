@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Gamish
+- 🌱 I’m currently learning ... All！
